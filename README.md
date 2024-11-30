@@ -5,6 +5,8 @@ o Kiel Yam, a fonoaudióloga (Janaína) de Itaituba foi cancelado e desmarcou o 
 Meus contatos antigos:
 (93) 98422-2986
 (93) 99203-4282
+(66) 98115-1243
+(66) 99622-9771
 kielyamsilva7@hotmail.com
 kielyamsilva7@gmail.com
 kielyamprincipe125435@gmail.com
